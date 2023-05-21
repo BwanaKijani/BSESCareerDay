@@ -1,2 +1,0 @@
-# BSESCareerDay
-Career Day links
